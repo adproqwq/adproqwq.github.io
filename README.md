@@ -1,1 +1,1 @@
-以前的blog，新的blog请访问：https://blog.adproqwq.xyz
+以前的blog，新的blog请访问：https://blog.adproqwq.top
